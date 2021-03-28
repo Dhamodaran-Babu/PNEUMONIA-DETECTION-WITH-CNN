@@ -27,7 +27,7 @@ Use summary method to know about my model's architecture
  
  Jai Hind🇮🇳..
  
- வாழ்க தமிழ் வழற்க தமிழ்
+ வாழ்க தமிழ் வளர்க தமிழ்
          
          ---தாமோதரன்(greetings from Dhamodaran)
 
